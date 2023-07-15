@@ -1,5 +1,5 @@
 - 👋 Hi, I'm @Orhan-D
-- 👀 I'm interested in innovation
+- 👀 I'm interested in innovations
 - 🌱 I am currently learning to make the future beautiful
 - 💞️ I want to Collaborate to improve the world
 - 📫 How to reach me OrhannD@outlook.com
